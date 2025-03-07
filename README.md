@@ -1,4 +1,4 @@
-# hello-world 
+# hello-to-my-past-self 
 Hello to myself for now i'm gonna use this readme file to diary and remind you consistently 10:23pm 3/7/2025
 i guess i just want to tell you this, stop wasting what little time you have left before you are forced to face the real world 10:25 3/7/2025
 do your raod map, get you life and managed it get a grip, i don't want you to ruin me (future you) i want you to work hard so that you can enjoy life... 10:26 3/7/2025
